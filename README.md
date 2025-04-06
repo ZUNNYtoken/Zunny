@@ -1,0 +1,2 @@
+# Zunny
+Zunny Meme Coin
